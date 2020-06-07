@@ -1,0 +1,2 @@
+# skizm-website
+WELCOME TO SKIZM COMMUNITY
